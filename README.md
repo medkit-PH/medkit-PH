@@ -15,3 +15,7 @@ i look to my right to see scythe i look to my left to see broker these partners 
 
 
 as you can tell i enjoy phighting alot, and other fandoms!
+<img width="503" height="499" alt="Screenshot 2026-02-15 091234" src="https://github.com/user-attachments/assets/f262c8d4-5945-477a-b2ce-108b298d6016" />
+this pick is not a ship btw even if it was i dont think it is or im unsure! 
+please dont approach when i'm feeling down, but don't c+h if i have a friend around!
+they will tell you to leave!
