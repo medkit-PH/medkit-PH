@@ -14,14 +14,19 @@ i look to my right to see scythe i look to my left to see broker these partners 
 
 as you can tell i enjoy phighting alot, and other fandoms!
 
+
 <img width="460" height="466" alt="Screenshot 2026-02-15 092132" src="https://github.com/user-attachments/assets/b75e2a9b-ea8c-4eac-912b-8fc0302228e2" />
+
 
 
 this picture is not a ship btw even if it was i dont think it is or im unsure! its just medkit and subsoace side by side so don't assume what ships im fond of!
 
 please dont approach when i'm feeling down, but don't c+h if i have a friend around!
 they will tell you to leave!
+
+
+
 <img width="614" height="612" alt="Screenshot 2026-02-15 091845" src="https://github.com/user-attachments/assets/47f1a4ed-21aa-4991-af2c-d12edc190ff2" />
 
 
-i always will uddle as long as none of my friends are wit me due to me only feeling comfortable with them, but if you were c+h before they came you can stay however not before they come please an thank you!
+i always will cuddle as long as none of my friends are wit me due to me only feeling comfortable with them, but if you were c+h before they came you can stay however not before they come please an thank you!
