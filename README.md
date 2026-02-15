@@ -26,7 +26,15 @@ they will tell you to leave!
 
 
 
+
+
+
+
+
 <img width="614" height="612" alt="Screenshot 2026-02-15 091845" src="https://github.com/user-attachments/assets/47f1a4ed-21aa-4991-af2c-d12edc190ff2" />
+
+
+
 
 
 i always will cuddle as long as none of my friends are wit me due to me only feeling comfortable with them, but if you were c+h before they came you can stay however not before they come please an thank you!
