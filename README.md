@@ -23,5 +23,5 @@ this picture is not a ship btw even if it was i dont think it is or im unsure! i
 please dont approach when i'm feeling down, but don't c+h if i have a friend around!
 they will tell you to leave!
 
+![Uploading Screenshot 2026-02-15 091845.png…]()
 
-https://share.google/tCBs89a8gMPJfAzXw
