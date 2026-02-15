@@ -27,8 +27,7 @@ as you can tell we enjoy phighting alot, and other fandoms!
 
 
 
-
-<img width="863" height="820" alt="Screenshot 2026-02-15 111235" src="https://github.com/user-attachments/assets/4ae899c9-009a-41fa-893a-d6e6d1fa6ce7" />
+hiyo keep scrolling down />
 
 
 
