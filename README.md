@@ -49,8 +49,8 @@ don't force us to say hi to your friends if we dont want to or feel uncomforatbe
 
 
 
+<img width="775" height="777" alt="Screenshot 2026-02-15 112156" src="https://github.com/user-attachments/assets/e0bb7fe2-fa5b-470a-b5b7-2a4e6bc00535" />
 
-<img width="614" height="612" alt="Screenshot 2026-02-15 091845" src="https://github.com/user-attachments/assets/47f1a4ed-21aa-4991-af2c-d12edc190ff2" />
 
 
 sometimes we have a weird figure of speech as we dont normally , thats because one of us are fronting.! dont make fun of the pro nouns that i have used while typing this
