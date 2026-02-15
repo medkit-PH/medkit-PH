@@ -13,8 +13,7 @@ i look to my right to see scythe i look to my left to see broker these partners 
 >
 
 
-
-<img width="856" height="878" alt="Screenshot 2026-02-15 111551" src="https://github.com/user-attachments/assets/6fcbe8b8-fc4a-4fc9-ab76-3b6560a15363" />
+<img width="856" height="878" alt="Screenshot 2026-02-15 111551" src="https://github.com/user-attachments/assets/53ecc3f0-c401-4c9e-9816-d72cbd9d67ce" />
 
 
 
