@@ -10,3 +10,8 @@ wip because it was 1:58 when i made this so yeah.
 
 TT because i don't like when people in pt or irl touch me i only let close friends touch me because in pt people keep booping or sitting next to me when c+h/int isn't in my name. and irl my oomfies won't stop touching my hair which that gets on my nerves
 i look to my right to see scythe i look to my left to see broker these partners stink of poo
+<img width="1378" height="1378" alt="Untitled54_20260215074009" src="https://github.com/user-attachments/assets/9b72685e-eae1-42df-8b34-25adfca30f82" />
+
+
+
+   my subspac fabart fnart
