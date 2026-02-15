@@ -41,7 +41,8 @@ hiyo keep scrolling down />
 
 please dont approach when we are feeling down, but don't c+h if we have a friend around!
 they will tell you to leave!
-
+they may be rude about it because it may make them uncomfortable! don't stay because you think its funny ust leave . i\we hate rage baiters and people who choose to aggrivate us so dni if you aggrivate us!
+don't force us to say hi to your friends if we dont want to or feel uncomforatbe! its basic ish to us it is not to you maybe.
 
 
 
