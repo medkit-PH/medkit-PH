@@ -48,8 +48,8 @@ don't force us to say hi to your friends if we dont want to or feel uncomforatbe
 
 
 
+<img width="775" height="777" alt="Screenshot 2026-02-15 112156" src="https://github.com/user-attachments/assets/1d0bc8de-817b-480b-9196-05c9802f5cf4" />
 
-<img width="775" height="777" alt="Screenshot 2026-02-15 112156" src="https://github.com/user-attachments/assets/e0bb7fe2-fa5b-470a-b5b7-2a4e6bc00535" />
 
 
 
