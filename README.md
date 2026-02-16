@@ -12,8 +12,7 @@ TT because i don't like when people in pt or irl touch me i only let close frien
 i look to my right to see scythe i look to my left to see broker these partners stink of poo
 >
 
-
-<img width="856" height="878" alt="Screenshot 2026-02-15 111551" src="https://github.com/user-attachments/assets/53ecc3f0-c401-4c9e-9816-d72cbd9d67ce" />
+" />
 
 
 
@@ -47,8 +46,7 @@ don't force us to say hi to your friends if we dont want to or feel uncomforatbe
 
 
 
-
-<img width="775" height="777" alt="Screenshot 2026-02-15 112156" src="https://github.com/user-attachments/assets/1d0bc8de-817b-480b-9196-05c9802f5cf4" />
+ />
 
 
 
